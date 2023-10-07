@@ -1,6 +1,6 @@
 - 👋 Hello, I'm Inès and I'm 28 years old
 - 👀 I’m interested in travel and make-up
-- 🌱 In my previous job, I was marketing manager at FREENOW (mobility app)
+- 🌱 In my previous job, I was marketing manager at FREENOW (mobility app). I was in charge of partnerships like events, brands, influencers. I was also in charge of all the social networks of the brand. 
 - 💞️ I would like acquire skills in data analytics to improve my skills in my current profession
 - 📫 How to reach me: https://www.linkedin.com/in/ines--benmessahel/ 
 
